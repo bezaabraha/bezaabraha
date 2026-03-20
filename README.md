@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Beza Abraha
+## 👋🏽 Hi, I'm Beza Abraha
 
 🎓 MS in Information Systems @ Georgia State University
 💡 Interested in People Analytics, HRIS, and Digital Innovation
